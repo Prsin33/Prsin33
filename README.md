@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Prsin33
+- 👋 Hi, I’m Pri @Prsin33
 - 📫 How to reach me ...prsin33@gmail.com
 
 <!---
